@@ -6,12 +6,7 @@
 ㅤㅤ
 ㅤㅤ
 
-<img width="1280" height="1280" alt="1 Sem Título_20251102120444" src="https://github.com/user-attachments/assets/f5b062d0-fe74-488c-aa9a-3dcb5e9339c3" />
-
-$${\color{pink}He . Him}$$  
+<img width="370" height="320" alt="7 Sem Título_20260109194410" src="https://github.com/user-attachments/assets/f0afe990-5a8a-4ed2-a638-0105cf3dc3b3" />
 ㅤㅤ
-ㅤㅤ
-$${\color{pink}William . 17y.o ㅤㅤㅤㅤCapricon . Sun}$$
+$${\color{green}18y.o ㅤㅤㅤㅤCapricon . he.him}$$
 
-
-<img width="1280" height="1280" alt="1 Sem Título_20251102120740" src="https://github.com/user-attachments/assets/53a22acd-63a2-4238-9b67-e45071a83ff1" />
