@@ -8,5 +8,5 @@
 
 <img width="370" height="320" alt="7 Sem Título_20260109194410" src="https://github.com/user-attachments/assets/f0afe990-5a8a-4ed2-a638-0105cf3dc3b3" />
 ㅤㅤ
-$${\color{green}18y.o ㅤㅤㅤㅤCapricon . he.him}$$
+18y.o ㅤㅤㅤㅤCapricon . he.him
 
